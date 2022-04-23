@@ -2,7 +2,7 @@
 
 💼 Atualmente trabalho como assistente logístico
 
-✍ Estudando inglês, HTML Web Developer
+✍ Estudando inglês,HTMIL,CSS3 e Java.
 
 📧 Contato: alefeira@gmail.com
 
