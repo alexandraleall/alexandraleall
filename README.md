@@ -1,6 +1,6 @@
 ### Olá sou Alexandra Leal👩
 
-💼 Atualmente trabalho como assistente logístico
+💼 Atualmente trabalho como analista de produção
 
 ✍ Estudando inglês,HTMIL,CSS3 e Java.
 
