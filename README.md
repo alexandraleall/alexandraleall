@@ -2,7 +2,7 @@
 
 💼 Atualmente trabalho como analista de produção
 
-✍ Estudando inglês,HTMIL,CSS3 e Java.
+✍ Estudando inglês,HTMIL,CSS3, Java e Power Bi
 
 📧 Contato: alefeira@gmail.com
 
